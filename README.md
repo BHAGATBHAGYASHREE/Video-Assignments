@@ -8,7 +8,7 @@ Video Link :-https://youtu.be/nvvRLEWRk28?feature=shared
 
 Topic :-Binary Number
  
-Video Link :- https://drive.google.com/file/d/1lp4EJf3Gx8b2RDhme1J9BG7vE8l8YZca/view?usp=drive_link
+Video Link :- https://youtu.be/hmIq6MNLIxE?feature=shared
 
 Topic :-Computer Network
  
