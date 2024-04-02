@@ -16,4 +16,4 @@ Video Link :- **https://youtu.be/7BgxrVa2HvY?feature=shared**
 
 Topic - Git and Github 
 
-Video Link- https://drive.google.com/file/d/1_9H0nJF_hrO4tOyUk6fhzk2tQHTz3Dmg/view?usp=drive_link
+Video Link- https://youtu.be/RhkVjpf0uFw?feature=shared
